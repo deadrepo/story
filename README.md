@@ -1,7 +1,7 @@
 # STORY
-useless code by me written in shell 
+depression season
 
-created by @icyurei or @ikxmleo [4zer0day]
+created by deadrepo
 donate me some ETH
 0xa01A95878447dfbCdb47d85ed6898C1d241Af5d6⠀
 
